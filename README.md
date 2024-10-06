@@ -4,4 +4,4 @@ If you have any questions or suggestions, feel free to reach out:
 
 Email: mohammadebadi.t@gmail.com
 
-LinkedIn: mohammadEbaditavallaei
+LinkedIn: www.linkedin.com/in/mebadi
